@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dolha_nadia
+- 👋 Hi, I’m @viceCtrl
 - 👀 I’m interested in music production
 - 🌱 I’m currently learning sound-design
 - 💞️ I’m looking to collaborate on game-audio/soundtracks/sound-design
