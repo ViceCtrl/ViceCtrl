@@ -5,6 +5,8 @@
 - 📫 vice.ctrl@gmail.com
 - Game:      https://flatwhitecanvas.itch.io/bubble-bounce
              https://antimundo.itch.io/wikiwi
+             https://smokyadobo.itch.io/tartarus
+             https://ericbomb.itch.io/titans-of-ealuh
 - My album:  https://music.apple.com/ua/artist/vice-ctrl/1617871508
              https://open.spotify.com/artist/2BJqxQPL7CwXDjmMj1dBxi
 
