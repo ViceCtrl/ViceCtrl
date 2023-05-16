@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on game-audio/soundtracks/sound-design
 - 📫 vice.ctrl@gmail.com
 
-- All my accounts in social Media: https://linktr.ee/DolhaNadiia
+- All my accounts in social Media: https://withkoji.com/@ViceCTRL
 
 - Game:      https://flatwhitecanvas.itch.io/bubble-bounce
              https://antimundo.itch.io/wikiwi
